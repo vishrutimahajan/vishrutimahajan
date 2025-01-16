@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on various projects
 - 📫 How to reach me On linkedln vishrutimahajan
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
+- ⚡ Educational fact: Finalist in Fintech Olympaid in top 50 students
 
 <!---
 vishrutimahajan/vishrutimahajan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
