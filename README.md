@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vishrutimahajan
-- 👀 I’m interested in drawing,painting , and dancing
+- 👀 I’m interested in drawing,painting
 - 🌱 I’m currently learning Bsc in Information Technology
 - 💞️ I’m looking to collaborate on various projects
 - 📫 How to reach me On linkedln vishrutimahajan
